@@ -8,8 +8,6 @@
 
 - 👨‍💻 All of my projects are available at [https://www.linkedin.com/in/krushna-tale-a08a99209/](https://www.linkedin.com/in/krushna-tale-a08a99209/)
 
-- 📫 How to reach me **https://github.com/krushna-tale**
-
 - 📄 Know about my experiences [Fresher](Fresher)
 
 - ⚡ Fun fact **I am Funny 😂**
